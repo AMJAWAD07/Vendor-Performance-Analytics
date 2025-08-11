@@ -26,4 +26,4 @@ understand sales patterns, and improve overall decision-making.
 ---
 
 **A Mohammed Jawad** 
-• 📎 [LinkedIn]([https://linkedin.com](https://www.linkedin.com/in/a-m-jawad/))
+• 📎 [LinkedIn](https://www.linkedin.com/in/a-m-jawad/)
